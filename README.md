@@ -25,3 +25,15 @@ The strategy then focuses on how to respond to negative reviews — emphasizing 
 To build positive sentiment, the strategy suggests encouraging happy customers to leave reviews, featuring testimonials on social platforms, using influencer collaborations, and engaging followers with user-generated content. It also emphasizes proactive steps like community engagement, transparency in communication, and showing appreciation to customers.
 
 Finally, the document highlights metrics to evaluate reputation — such as overall sentiment score, review quality and quantity, and response rate. The strategy ensures that Creamy Hub has a solid plan in place not only to address crises but to consistently build a strong, trustworthy, and beloved brand in the digital space.
+
+## Responding to Positive Reviews
+
+![Image](https://github.com/user-attachments/assets/a5434690-7a44-4e8b-81f6-14afe6f140a7)
+
+![Image](https://github.com/user-attachments/assets/4eed83bc-e2cb-486c-b8b7-9be497ceb5f8)
+
+## Responding to Negative Reviews
+
+![Image](https://github.com/user-attachments/assets/1e7cedc0-6650-4313-8c05-7559f34929ef)
+
+![Image](https://github.com/user-attachments/assets/4b3e21f5-7b13-42dc-9a61-4c96f13329f4)
